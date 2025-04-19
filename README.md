@@ -9,5 +9,5 @@ ___
 
 🌐 Follow me on
 - [X/twitter](https://x.com/aboudev22?s=09)
-- [Instagram](https://www.instagram.com/aboudev22/profilecard/?igsh=aTI3MzNtczRzbzdy)
+- [Instagram](https://www.instagram.com/aboudev22/?igsh=aTI3MzNtczRzbzdy)
 
