@@ -1,4 +1,4 @@
-## Hi there 👋, Im Aboubakar Sidik
+## Hi there 👋, I'm Aboubakar Sidik
 
 ___
 
@@ -8,4 +8,6 @@ ___
 
 
 🌐 Follow me on
+- [X/twitter](https://x.com/aboudev22?s=09)
+- [Instagram](https://www.instagram.com/aboudev22/profilecard/?igsh=aTI3MzNtczRzbzdy)
 
