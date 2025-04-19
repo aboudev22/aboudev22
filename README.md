@@ -2,7 +2,7 @@
 
 ___
 
-- I'm **Frontend developper**
+## I'm **Frontend developper**
 
 🎯 My goal: to work on exciting projects.
 
